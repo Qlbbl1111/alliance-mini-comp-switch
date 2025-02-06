@@ -5,3 +5,6 @@ The Mini VEX Comp Switch is a miniaturized version of the official "VEXnet Compe
 This 2 port version is perfect for VEXU teams with 2 robots, for an alliance to use while scrimming, and for syncing autons with your alliance partners on the practice fields!
 
 BUY HERE ->>> https://www.tindie.com/products/qlbbl/alliance-2-port-mini-vexnet-competition-switch/
+
+
+Mini VEXnet Alliance Competition Switch © 2024 by Quinn Burke is licensed under CC BY-NC-SA 4.0 
